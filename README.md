@@ -1,5 +1,6 @@
-## Hi there 👋
+## Love potato so much
 
+![](https://media1.tenor.com/m/lVlfg-1BJ-IAAAAC/dancing-cat-dance.gif)
 <!--
 **amabatata/amabatata** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
